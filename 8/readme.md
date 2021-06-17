@@ -1,4 +1,4 @@
-Absen pertemuan ke-8
+Absen pertemuan ke-9
 
 NIM: 2022500058
 NAMA: VENI YULIANA 
