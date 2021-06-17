@@ -1,0 +1,5 @@
+Absen pertemuan ke-8
+
+NIM: 2022500058
+NAMA: VENI YULIANA 
+KELOMPOK: SI2K 
